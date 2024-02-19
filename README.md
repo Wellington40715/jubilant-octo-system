@@ -1,2 +1,2 @@
 # jubilant-octo-system
-Test to learn more about GitHub
+I love 🐟, to🍴, ✈️🌏 and meet🫂!
